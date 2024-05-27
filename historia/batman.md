@@ -1,0 +1,1 @@
+# Batman es un superhéroe que aparece en los cómics estadounidenses publicados por DC Comics. El personaje fue creado por el artista Bob Kane y el escritor Bill Finger, y debutó en el número 27 del cómic Detective Comics el 30 de marzo de 1939. 
